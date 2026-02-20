@@ -14,4 +14,4 @@ Our game may use third-party advertising services (like AdMob) that may collect 
 We may update our Privacy Policy from time to time. You are advised to review this page periodically for any changes.
 
 ### 4. Contact Us
-If you have any questions, contact us at: [Your Email Here]
+If you have any questions, contact us at: skhanofficial.pk@gmail.com
